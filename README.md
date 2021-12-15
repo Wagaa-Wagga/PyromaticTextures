@@ -1,2 +1,0 @@
-wagga wagga
-yes
